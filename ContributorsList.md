@@ -27,3 +27,16 @@ ___
 
 • Waterville Sheet Metal, Inc.
 
+• Krypto_Kidz
+
+• Devan
+
+• Nishit
+
+• Bitcoin Matz
+
+• Tim Kelley
+
+• Joshua
+
+• Oscar 
