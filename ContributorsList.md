@@ -27,7 +27,17 @@ ___
 
 • Waterville Sheet Metal, Inc.
 
+• CryptoCloaks
+
+• RickV3D
+
+• Lommy
+
 • Krypto_Kidz
+
+• ArtandDesignbySF
+
+• Mario
 
 • Devan
 
