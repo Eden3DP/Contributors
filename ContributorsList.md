@@ -5,7 +5,7 @@ ___
 
 # Thank You to;
 
-• Super TestNet: @Supertestnet
+• Super TestNet: https://github.com/supertestnet
 
 • Kirk Stobinski
 
