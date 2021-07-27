@@ -5,7 +5,7 @@ ___
 
 # Thank You to;
 
-• Super TestNet
+• Super TestNet: @Supertestnet
 
 • Kirk Stobinski
 
@@ -52,3 +52,5 @@ ___
 • Oscar (Guatemala)
 
 • Mark
+
+• Allen White: 
